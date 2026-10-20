@@ -1,0 +1,1 @@
+# vo8-mining-privacy
